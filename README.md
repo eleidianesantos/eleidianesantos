@@ -1,0 +1,4 @@
+- 👀 Olá,me chamo Eleidiane
+- 🙂 Tenho 16  anos
+- 👩‍🍼 Nasci dia 18/10/2005
+- ♎  Meu signo è libra
